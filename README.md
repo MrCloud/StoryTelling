@@ -13,4 +13,7 @@ Mais surprise, quelqu'un arrive derrière lui...
 Il s'appelle "Dudu" et vient pour aider ce petit garçon à 
 retrouver son clown imaginaire appelé "Jaune-Ass"  
 
-Dudu s'approcha du jeune bambin
+Dudu s'approcha du jeune chérubin  
+Et lui chuchota à l'oreille doucement  
+"Ton Clown n'est plus là maintenant..."  
+"...Mais je prendrais soin de toi tu verras"  
