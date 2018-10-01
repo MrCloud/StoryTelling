@@ -10,3 +10,4 @@ Et jetta un coup d'oeil vers le sapin installé dans le salon
 et derrière ce sapin un immense cadeau vert
 super grands et de fond ronde.
 Mais surprise, quelqu'un arrive derrière lui...
+Il s'appelle "Dudu"
