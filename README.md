@@ -18,4 +18,5 @@ Et lui chuchota à l'oreille doucement
 "Ton Clown n'est plus là maintenant..."  
 "...Mais je prendrais soin de toi tu verras"  
 
-L'enfant se retourna vivement
+L'enfant se retourna vivement  
+mais n'aperçu personne derrière lui
