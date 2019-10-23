@@ -1,5 +1,5 @@
 # StoryTelling
-Collaborative Story Telling
+Collaborative Story Telling de BGs
 
 Il était une fois  
 La veille de noel  
